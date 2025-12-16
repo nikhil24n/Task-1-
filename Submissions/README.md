@@ -1,1 +1,1 @@
-Upload your submission inside your own folder only.
+Upload your submissions here.
